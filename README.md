@@ -1,2 +1,3 @@
 # Sahar-TV-network
-Hello everyone and thanks for all Your positive activities and hard work, Thank You
+Watch Sahar-TV network virtually from all devices worldwide internationally
+Multicultural Community Entertainmen Programs Worldwide
